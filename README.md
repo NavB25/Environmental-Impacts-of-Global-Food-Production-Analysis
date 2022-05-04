@@ -1,4 +1,4 @@
-# Environmental-Impacts-of-Global-Food-Production
+# Environmental Impacts of Global Food Production
 
 As someone who is drawn to health and nutrition, the idea of experimenting with different kinds of food has always piqued my interest. But it is only recently that I’ve begun to realize that what I put on my plate not only has an impact to my wellbeing but also to the wellbeing of the environment. 
 
